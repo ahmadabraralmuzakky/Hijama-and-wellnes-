@@ -1,1 +1,0 @@
-# Hijama-and-wellnes-
